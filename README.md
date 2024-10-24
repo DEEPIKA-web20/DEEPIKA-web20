@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DEEPIKA-web20
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning persuing my B.tech degree in the specialization of Computer Science and Business Systems
+- 🌱 I’m currently persuing my B.tech degree in the specialization of Computer Science and Business Systems
 - 📫 How to reach me : email on
 deepikasakthivel20@gmail.com
 - 😄 Pronouns: she/her
